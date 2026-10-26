@@ -1,1 +1,2 @@
-Jestem w trakcie wygładzania projektu
+Jestem w trakcie wygładzania projektów 
+Niebawem ukarze się ich kilka

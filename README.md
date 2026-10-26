@@ -1,2 +1,2 @@
 Jestem w trakcie wygładzania projektów 
-Niebawem ukarze się ich kilka
+Niebawem ukaże się ich kilka
